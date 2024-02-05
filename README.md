@@ -1,4 +1,4 @@
-https://dinara55.github.io/rsschool-cv
+https://dinara-urazova.github.io/rsschool-cv
 
 
 
